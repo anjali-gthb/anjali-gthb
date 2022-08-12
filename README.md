@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **yashika22789@gmail.com**
 
-- * **FROM INDIA 🙏**
+-  **FROM INDIA 🙏**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
