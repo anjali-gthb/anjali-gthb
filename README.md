@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **yashika22789@gmail.com**
 
-- * **"lIFE is sweet as honey Yeah this beat cha ching link money"**
+- * **"LIFE is sweet as honey Yeah this beat cha ching link money"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
