@@ -1,11 +1,11 @@
 <h1 align="center">Hi 👋, I'm Anjali</h1>
-<h3 align="center">A passionate coder from India.</h3>
+<h3 align="center">LIFE is sweet as honey Yeah this beat cha ching link money</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=anjali-gthb&label=Profile%20views&color=0e75b6&style=flat" alt="anjali-gthb" /> </p>
 
 - 📫 How to reach me **yashika22789@gmail.com**
 
-- * **"LIFE is sweet as honey Yeah this beat cha ching link money"**
+- * **"FROM INDIA 🙏**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
