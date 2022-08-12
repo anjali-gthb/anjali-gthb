@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Anjali</h1>
-<h3 align="center">LIFE is sweet as honey Yeah this beat cha ching link money</h3>
+<h3 align="center">LIFE is sweet as honey Yeah this beat cha ching like money</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=anjali-gthb&label=Profile%20views&color=0e75b6&style=flat" alt="anjali-gthb" /> </p>
 
