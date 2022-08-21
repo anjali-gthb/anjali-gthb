@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=anjali-gthb&label=Profile%20views&color=0e75b6&style=flat" alt="anjali-gthb" /> </p>
 
-- 📫 How to reach me **yashika22789@gmail.com**
+- 📫 How to reach me **anjaligariya2233@gmail.com**
 
 -  **FROM INDIA 🙏**
 
